@@ -30,4 +30,4 @@ I may update our Privacy Policy from time to time. Such changes will be posted o
 
 **Contact Us**
 
-If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at vegeta_zhang@icloud.com.
+If you have any questions or suggestions about my Privacy Policy, do not hesitate to contact me at the following email address: vegeta_zhang@icloud.com.
