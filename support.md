@@ -18,4 +18,4 @@ English / Simplified Chinese / Traditional Chinese
 
 ## Contact Us
 
-If you have any questions or suggestions about my Privacy Policy, please contact me at the following email address: vegeta_zhang@icloud.com.
+If you need any help, please contact me at the following email address: vegeta_zhang@icloud.com.
